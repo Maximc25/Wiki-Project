@@ -1,0 +1,2 @@
+# Squid Game Season 1
+Squid Game serie gaat er over mensen die heel arm zijn en problemen hebben in leven. Dan ze komen een mens tegen die bieden aan arme mensen om geld te verdienen. En ze spelen spelletjes van hun jeugd maar als je verliest dan ga je dood.
